@@ -1,3 +1,4 @@
 oooi
 
-E perdão o tanto de coisa que eu falo, eu sou MUITO tagarela
+É que você ainda não me conhece e nem pegou intimidade kkkkkkkk
+Eu falo pra caralho mesmo
